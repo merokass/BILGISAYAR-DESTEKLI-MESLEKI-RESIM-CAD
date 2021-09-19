@@ -1,0 +1,2 @@
+# BILGISAYAR-DESTEKLI-MESLEKI-RESIM-CAD
+Her Gün Güncellenecektir.
